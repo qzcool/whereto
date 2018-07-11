@@ -6,4 +6,4 @@ Finding a good place to hangout could be stressful sometime, not to mention if y
 1. Large comments number
 2. Raising trend of following and watches
 3. Reasonably priced
-4. Friends endorsement
+4. Friend endorsement
